@@ -1,16 +1,17 @@
-### Hi there 👋
+### Bienvenidos ❤️‍🔥
 
-<!--
-**kim10102005/kim10102005** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Kim 👽
 
-Here are some ideas to get you started:
+- estou estudando na Alura
+- no se q ma pone aqui
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://media.tenor.com/iQ9IoqRWknMAAAAM/doge-dance.gif)
+
+
+### você entrar em contato conmigo 📫
+
+Castrokimberly27@gmail.comhttps://media.tenor.com/iQ9IoqRWknMAAAAM/doge-dance.gif
+
+@kimj__cv
+
+![](https://media.tenor.com/f8xOHJkF3RsAAAAM/mbstm-shrek-mbtsm.gif)
