@@ -10,7 +10,7 @@ Meu nome é Kim 👽
 
 ### você entrar em contato conmigo 📫
 
-Castrokimberly27@gmail.comhttps://media.tenor.com/iQ9IoqRWknMAAAAM/doge-dance.gif
+Castrokimberly27@gmail.com
 
 @kimj__cv
 
